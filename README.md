@@ -1,5 +1,5 @@
 - ✨ Hi, I’m @annamachadom04
-- 🌱 I’m ADS student ✨
+- 🌱 I’m ADS student at the institution ETEC/ITAPEVA-SP ✨
 - 📫 How to reach me:annamachado04.m@outlook.com
 - 😄 Pronouns: She/Her
 
